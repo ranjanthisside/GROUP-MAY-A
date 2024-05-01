@@ -3,6 +3,8 @@ Prabhakar Ranjan's Introduction
 Hello, this is Prabhakar Ranjan. I am currently in first year, Electrical Engineering department at Haldia Institute of Technology.
 I belong to Rajganj, Dhanbad, Jharkhand. I've done my schooling(10pth and 12th) from Jawahar Navodaya Vidyalaya, Dhanbad.
 
+I am a part of the video editing team at ISTE HIT SB.
+
 Hobbies:- 
 video editing
 programming 
